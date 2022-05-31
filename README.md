@@ -1,1 +1,1 @@
-![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23000000&lines=47hx1-53r+-+ADMIN!..;HIJACKER!;This+tool+only+for+educational+purposes!;Dont+use+illegally!...;coded+by+47hx1-53r+%3A)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23000000&lines=47hx1-53r+-+ADMIN!..;HIJACKER!;This+tool+only+for+educational+purposes!;Dont+use+illegally!...;coded+by+47hx1-53r+%3A)](https://git.io/typing-svg)
